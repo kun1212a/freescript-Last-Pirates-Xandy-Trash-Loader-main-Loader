@@ -1,1 +1,0 @@
-# freescript-Last-Pirates-Xandy-Trash-Loader-main-Loader
